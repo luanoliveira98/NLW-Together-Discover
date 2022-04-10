@@ -1,1 +1,0 @@
-NLW Together Discover
